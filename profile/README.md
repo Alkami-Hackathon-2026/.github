@@ -2,7 +2,7 @@
 
 We’re excited to have you here! 🎉
 
-Whether you’re an Alkami employee, a client, or a member of one of our partner teams, you’re part of a community coming together to build, experiment, and imagine what’s next. Think big, move fast, and have fun along the way. ✨
+Whether you’re a client, a member of one of our partner teams, or an Alkami Advisor, you’re part of a community coming together to build, experiment, and imagine what’s next. Think big, move fast, and have fun along the way. ✨
 
 ## 🛠️ Before you begin
 
